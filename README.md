@@ -3,4 +3,6 @@ Used as coolant in reactors, turrets and factories.
 
 
 
-u can trust cryo, she is a nice kitty uwu
+a cute kitty and a rhythm game lover
+
+Phigros Ranking Score: 14.80
