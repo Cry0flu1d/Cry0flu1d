@@ -7,4 +7,4 @@ a cute kitty and a rhythm game lover
 
 Phigros Ranking Score: 14.93
 
-workin on my mindustry mod project uwu
+yes i love spasmodic-chan
